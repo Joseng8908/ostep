@@ -1,1 +1,1 @@
-study for os - operating system - three easy pieces
+study for os - operating system three easy pieces
